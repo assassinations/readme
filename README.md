@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://cdn.discordapp.com/attachments/987169604864454676/1005988037420920995/skidd.gif">
+<img src="https://cdn.discordapp.com/attachments/987183988684767312/1005478895597920286/lol.gif">
 </p>
 <p align="center">
   skid
